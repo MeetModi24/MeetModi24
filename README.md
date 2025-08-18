@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎓 Final Year Undergraduate Student at IIT Kharagpur<br>👨‍💻
+🎓 Final Year Undergraduate Student at IIT Kharagpur<br>
 
 
 ## 🌐 Socials:

@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎓 Final Year Undergraduate Student at IIT Kharagpur<br>
+🎓 Software Engineer @Salesforce | IIT Kharagpur’26 graduate
 
 
 ## 🌐 Socials:

@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎓 Software Engineer @Salesforce | IIT Kharagpur’26 graduate
+🎓 IIT Kharagpur’26 graduate
 
 
 ## 🌐 Socials:
